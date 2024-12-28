@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&w=1000)Today: [一只绿海龟在太平洋中游泳，法国海��属地新喀里多尼亚 (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&w=1000)Today: [一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-28 [download 4k](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-28 [download 4k](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-27 [download 4k](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
