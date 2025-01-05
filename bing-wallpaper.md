@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-05 | [Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-30 | [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-29 | [A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
